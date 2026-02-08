@@ -71,6 +71,4 @@ campo de reserva vacío
 
 
 LINK DEL VIDEO EXPLICATIVO
-https://www.loom.com/share/ce9bd2dbdc0b4e47b59acce9c0d94b6d
-
-
+https://drive.google.com/file/d/1ZBc0w0oXdn6RK7GTKaNdrQHzmhFqUW8G/view?usp=sharing
